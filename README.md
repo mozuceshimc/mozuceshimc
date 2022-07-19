@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mozuceshimc
 - 👀 I’m interested in minecraft
-- 🌱 I’m currently learning minecraft op
+- 🌱 I’m currently learning minecraft 
 - 💞️ I’m looking to collaborate on my mom
 - 📫 How to reach me 
 - tiktok mozuceshimc mozuceshimc1
